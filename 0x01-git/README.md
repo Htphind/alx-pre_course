@@ -1,1 +1,1 @@
-OGRI HIND
+ RIZO
