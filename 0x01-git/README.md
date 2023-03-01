@@ -1,1 +1,1 @@
-hind ogri
+OGRI HIND
